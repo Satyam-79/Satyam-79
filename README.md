@@ -1,4 +1,4 @@
-### Hey there, I'm [Satyam](http://www.linkedin.com/in/satyam79)! 👋
+### Hey there, I'm [Satyam](https://satyam-79.github.io/)! 👋
 B.Tech CSE '24
 
 
